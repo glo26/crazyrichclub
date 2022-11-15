@@ -6,6 +6,7 @@ Users are allowed to slice up "rick kids" items for fun. In exchange of the high
 
 ## Preview of Gameplay
 Check out 'Crazy Rich Club' gameplay preview here:
+https://bit.ly/Crazyrichclubgameplay
 
 # Contact Us
 galaxygangteam@gmail.com
